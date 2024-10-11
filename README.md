@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Typescript, Docker, Redis**
 
-- 💬 Ask me about **Python, react, data structures, alogrithms**
+- 💬 Ask me about **Python, Javascript, React, Data structures, Alogrithms**
 
 - 📫 How to reach me **bemnetmerkebu17@gmail.com**
 
