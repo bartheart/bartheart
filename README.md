@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bemnetmerkebu17@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Oc3C-LCY77j8TlfuymlFgUiUtHoRAb-K/view?usp=sharing]([https://drive.google.com/file/d/1Oc3C-LCY77j8TlfuymlFgUiUtHoRAb-K/view?usp=sharing](https://drive.google.com/file/d/1VN4bxr83vjVlSiUn0GY-x9NEnDLOUu8F/view?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Oc3C-LCY77j8TlfuymlFgUiUtHoRAb-K/view?usp=sharing](https://drive.google.com/file/d/1Oc3C-LCY77j8TlfuymlFgUiUtHoRAb-K/view?usp=sharing)
 
 - ⚡ Fun fact **I am yet to see the ocean.**
 
