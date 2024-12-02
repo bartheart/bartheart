@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1VN4bxr83vjVlSiUn0GY-x9NEnDLOUu8F/view?usp=sharing](https://drive.google.com/file/d/1VN4bxr83vjVlSiUn0GY-x9NEnDLOUu8F/view?usp=sharing)
 
-- ⚡ Fun fact **I am yet to see the ocean.**
+- ⚡ Fun fact **Freshman year, I almost burnt the entire dorm after I left a slice of bread in the microwave for too long. We had a toaster!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
